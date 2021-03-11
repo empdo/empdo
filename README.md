@@ -2,4 +2,3 @@
 <br/>
 **Private guru:** [Alve Svarén](https://github.com/alvesvaren)<br/>
 [**Onlyfans**](https://github.com/empdo?tab=overview&from=2034-12-01)<br/>
-**Fullstack fang developer**
